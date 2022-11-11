@@ -2,7 +2,7 @@
         ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
         Tebex: https://aim-project.tebex.io
        Discord : https://discord.gg/6My4QNb6TP
-       Preview : https://youtu.be/2cgHbXXy7Ks
+       Preview : https://youtu.be/tY6lniqcJbg
     ━━━━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━━━
 ]]
 
